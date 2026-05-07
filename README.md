@@ -1,1 +1,0 @@
-# sih-2025-project
